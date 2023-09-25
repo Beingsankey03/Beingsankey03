@@ -13,7 +13,7 @@
 
 - How to reach me **sanket.nadargi1@gmail.com**
 
-- Know about my experiences [https://drive.google.com/file/d/1p2DWq8A1aP211bPExGJtFIyg1QjWPvd2/view?usp=sharing](https://drive.google.com/file/d/1p2DWq8A1aP211bPExGJtFIyg1QjWPvd2/view?usp=sharing)
+- My RESUME [https://drive.google.com/file/d/1p2DWq8A1aP211bPExGJtFIyg1QjWPvd2/view?usp=sharing](https://drive.google.com/file/d/1p2DWq8A1aP211bPExGJtFIyg1QjWPvd2/view?usp=sharing)
 
 - Fun fact **I think I need perfection at its PEAK.**
 
