@@ -1,4 +1,4 @@
-<h1 align="center">Hi ðŸ‘‹, I'm Sanket Nadargi</h1>
+<h1 align="center">Hi, I'm Sanket Nadargi</h1>
 <h3 align="center">A passionate Data and AI enthusiast from India looking for opportunity to showcase my skills.</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=beingsankey03&label=Profile%20views&color=0e75b6&style=flat" alt="beingsankey03" /> </p>
