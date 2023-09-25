@@ -3,19 +3,19 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=beingsankey03&label=Profile%20views&color=0e75b6&style=flat" alt="beingsankey03" /> </p>
 
-- ðŸ”­ Iâ€™m currently working on **AI and ML projects**
+- I am currently working on **AI and ML projects**
 
-- ðŸŒ± Iâ€™m currently learning **Generative AI and NLP**
+- I am currently learning **Generative AI and NLP**
 
-- ðŸ‘¨â€ðŸ’» All of my projects are available at [My GitHub](My GitHub)
+- All of my projects are available at [My GitHub](My GitHub)
 
-- ðŸ’¬ Ask me about **ML,DL,GENAI,AI,DS**
+- Ask me about **ML,DL,GENAI,AI,DS**
 
-- ðŸ“« How to reach me **sanket.nadargi1@gmail.com**
+- How to reach me **sanket.nadargi1@gmail.com**
 
-- ðŸ“„ Know about my experiences [https://drive.google.com/file/d/1p2DWq8A1aP211bPExGJtFIyg1QjWPvd2/view?usp=sharing](https://drive.google.com/file/d/1p2DWq8A1aP211bPExGJtFIyg1QjWPvd2/view?usp=sharing)
+- Know about my experiences [https://drive.google.com/file/d/1p2DWq8A1aP211bPExGJtFIyg1QjWPvd2/view?usp=sharing](https://drive.google.com/file/d/1p2DWq8A1aP211bPExGJtFIyg1QjWPvd2/view?usp=sharing)
 
-- âš¡ Fun fact **I think I need perfection at its PEAK.**
+- Fun fact **I think I need perfection at its PEAK.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
